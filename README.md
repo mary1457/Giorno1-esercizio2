@@ -1,0 +1,1 @@
+# Giorno1-esercizio2
